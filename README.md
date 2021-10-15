@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Maxibunny
 - 👀 I’m interested in ALL
-- 🌱 I’m currently learning studend life
+- 🌱 I’m currently learning life
 - 💞️ I’m looking to collaborate on always way
 - 📫 How to reach me https://vk.com/maxibony
 
